@@ -1,0 +1,1 @@
+andriod developer color resource
